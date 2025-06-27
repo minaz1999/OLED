@@ -46,7 +46,9 @@ o	اتصالات زیر را بین برد آردوینو UNO و نمایشگر 
 
 
 ![photo19395255225](https://github.com/user-attachments/assets/0940391e-963d-4e79-8f0c-bc85febe7642)
-https://uupload.ir/view/44bd6855-dd8e-4b2a-a1c9-198b74053756_h1gn.mp4/
+![photo19395255225](https://uupload.ir/view/44bd6855-dd8e-4b2a-a1c9-198b74053756_h1gn.mp4/)
+
+
 
 
 
